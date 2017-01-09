@@ -1,0 +1,2 @@
+# Gyakorl-
+kezdő feladatok
